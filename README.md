@@ -19,4 +19,4 @@
 
 总之，尽管“日本AV免费”资源十分丰富，用户在选择平台时应优先考虑合法性、安全性和优质的观看体验，这样不仅可以享受免费的内容，还能避免潜在的安全隐患。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt7 ）</span>
